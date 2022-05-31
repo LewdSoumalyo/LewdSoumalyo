@@ -1,1 +1,2 @@
-- 👋 Hi, I’m Sou
+- Hi, I’m Sou
+- im quite dumb
