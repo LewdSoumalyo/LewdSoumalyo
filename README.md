@@ -1,2 +1,4 @@
 - Hi, I’m Sou
 - im quite dumb
+- i should be more active,
+- 
